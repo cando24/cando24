@@ -17,6 +17,6 @@ Here are some ideas to get you started:
 
 
 방송통신대학교 
-농학과
-컴퓨터과학과
+농학과  
+컴퓨터과학과  
 공부한 내용을 정리하기 위해 만들었다.
