@@ -20,3 +20,6 @@ Here are some ideas to get you started:
 농학과  
 컴퓨터과학과  
 공부한 내용을 정리하기 위해 만들었다.
+
+
+2024년 2학기 : https://github.com/cando24/20242
