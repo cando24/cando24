@@ -23,3 +23,27 @@ Here are some ideas to get you started:
 
 
 2024년 2학기 : https://github.com/cando24/20242
+
+
+![image](https://github.com/user-attachments/assets/4f1bc166-da75-4726-81d8-87bb38a10200)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
