@@ -29,7 +29,13 @@ https://github.com/cando24/knou
 
 
 
+![image](https://github.com/user-attachments/assets/70c5fd40-50bf-4edf-8951-4a859632064c)
 
+![image](https://github.com/user-attachments/assets/2833db52-d8f4-47a7-965e-67bc1b9601d1)
+
+![image](https://github.com/user-attachments/assets/9b4d1637-08b1-4984-91d6-1b207ed7477b)
+
+![image](https://github.com/user-attachments/assets/92219ff3-8cf9-4198-b31d-dedb74bbaa1e)
 
 
 
